@@ -1,4 +1,4 @@
-Mainframe engineer at IBM
+Just another Mainframe Engineer.
 
 - [LinkedIn](https://www.linkedin.com/in/yymorita/)
 
